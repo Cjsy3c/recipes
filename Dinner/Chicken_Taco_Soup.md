@@ -25,7 +25,7 @@
 
 
 ### Instructions:
-1. Combine all the ingredients into a large pot and bring to a boil over medium-high heat.
+1. Combine all the ingredients **except the rice** into a large pot and bring to a boil over medium-high heat.
 2. Lower the heat and let simmer for 20 to 25 minutes.
 3. Add rice and remove from heat
 4. Serve warm with lime wedges, shredded cheese, tortilla chips, and/or tortillas.
