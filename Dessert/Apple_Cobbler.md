@@ -11,8 +11,8 @@
 - 1 box of Yellow Cake Mix
 - 1/2 box Brown Sugar
 - Cinnamon
-- 10-15 Apples (or Apple Pie filling)
-- 1 can 7 up or Sprite
+- 10-15 Apples (or 2 cans of Apple Pie filling)
+- part of a can of 7 up or Sprite
 - 1 stick Butter/margarine
 
 
@@ -22,9 +22,10 @@
 3. Cover the apples and brown sugar with yellow cake mix, do not mix.
 4. Cut up the stick of butter and place pats of butter on top of the cake mix.
 5. Sprinkle with a little cinnamon powder.
-6. Put into the oven at approximately 300-350 degrees
-7. Cooking usually is 45-mins to an hour.
-8. Check after 30-45 minutes, it is done when the crust starts to brown and you can see the apples/brown sugar mixture bubbling up through the crust.
+6. Pour a bit of sprite or 7 up into the cobbler.
+7. Put into the oven at approximately 300-350 degrees
+8. Cooking usually is 45-mins to an hour.
+9. Check after 30-45 minutes, it is done when the crust starts to brown and you can see the apples/brown sugar mixture bubbling up through the crust.
 
 
 
